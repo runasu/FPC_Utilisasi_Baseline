@@ -1,1 +1,1 @@
-License by Rusi Nasution
+License by Rusdi Nasution
